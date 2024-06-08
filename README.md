@@ -7,6 +7,3 @@ I am a Front End Developer with a previous background in middle school education
  💬 Ask me about anything Marvel, Sports, Movies.
  📫 How to reach me: Grantsheffield1@gmail.com
  😄 Pronouns: He/Him
-
-🌐 Socials:
-_____________________________________
